@@ -41,6 +41,7 @@
                https://www.youtube.com/shorts/yXUVIOuaTuE
                https://www.youtube.com/shorts/58SxX5J981A
 
+              İLETİŞİM:emelodabadi@gmail.com
 
             
       
