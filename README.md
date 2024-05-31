@@ -17,8 +17,6 @@
 
             ANA EKRAN
 
-           ![Ekran görüntüsü 2024-05-31 222705](https://github.com/EmelOdabasii/MINI-LABIRENT-OYUNU-/assets/165557156/4e912c38-92e6-4515-be21-2d9accf23253)
-
          Burada yanlış cevap verdiğimiz için başlayamadık .
 ![Ekran görüntüsü 2024-05-31 222737](https://github.com/EmelOdabasii/MINI-LABIRENT-OYUNU-/assets/165557156/01916090-1c06-4261-98e5-1bc857ea39e8)
 
