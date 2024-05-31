@@ -35,8 +35,11 @@
              İki işlemli sorular rastgele bir biçimde sorulur.
 
         SORUNUN CEVAPLANMA ŞEKLİ 
-               Fare yardımıyla ilgili kutucuğa tıklanırve klavyeden tuşlanır.
+               Fare yardımıyla ilgili kutucuğa tıklanı rve klavyeden tuşlanır.
 
+               OYUNUN YAPIM AŞAMASINDAKİ HALİ
+               https://www.youtube.com/shorts/yXUVIOuaTuE
+               https://www.youtube.com/shorts/58SxX5J981A
 
 
             
