@@ -41,7 +41,7 @@
 
                OYUNUN YAPIM AŞAMASINDAKİ HALİ
         
-
+  https://www.youtube.com/shorts/yXUVIOuaTuE[](url)
 
 [](https://www.youtube.com/shorts/58SxX5J981A)
 
