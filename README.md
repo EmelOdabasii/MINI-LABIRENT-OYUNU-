@@ -40,8 +40,10 @@
                Fare yardımıyla ilgili kutucuğa tıklanı rve klavyeden tuşlanır.
 
                OYUNUN YAPIM AŞAMASINDAKİ HALİ
-               https://www.youtube.com/shorts/yXUVIOuaTuE
-               https://www.youtube.com/shorts/58SxX5J981A
+        
+
+
+[](https://www.youtube.com/shorts/58SxX5J981A)
 
               İLETİŞİM:emelodabadi@gmail.com
 
