@@ -43,7 +43,7 @@
   https://www.youtube.com/shorts/yXUVIOuaTuE
   https://www.youtube.com/shorts/58SxX5J981A
   
-
+https://www.youtube.com/shorts/yXUVIOuaTuE
 
               İLETİŞİM:emelodabadi@gmail.com
 
